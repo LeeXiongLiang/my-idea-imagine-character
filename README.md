@@ -5,8 +5,7 @@
 
 美国总统，虔诚的佛教信仰者。从佛法中自悟出彻底灭苦之道：既然人类繁衍必然使未来无数生命继续受苦，那么终结人类的存在，便能使未来不再有人因出生而承受苦难。下令发动全球核毁灭，终结人类文明。他以慈悲为信仰，从不自认为佛，他宁愿独自承担一切恶业，甚至永堕地狱，也不愿让未来无数世代继续受苦。他将终结未来苦难视为高于一切的使命。他不求众生理解，也不求佛宽恕，只愿成为人类历史上最后一个承担罪业的人。
 
-<img width="512“ alt="image" src="https://github.com/user-attachments/assets/0d5a1a7e-37aa-4c4c-a569-c1595a581cab" />
-
+<img width="300" alt="image" src="https://github.com/user-attachments/assets/0d5a1a7e-37aa-4c4c-a569-c1595a581cab" />
 
 ## 0923
 ## 杀手-傀儡师
